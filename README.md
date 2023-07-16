@@ -29,7 +29,9 @@
 
 I am constantly seeking new opportunities to apply my technical and non-technical skills, contributing to innovative projects and making a positive impact in the engineering field.
 
-📫 Feel free to reach out to me at [Your Email Address] or connect with me on [LinkedIn](https://www.linkedin.com/in/your-profile)!
+📫 Feel free to reach out to me at puchumondal776@gmail.com or connect with me on www.linkedin.com/in/
+samrat-mondal-a677321ba
+!
 
 Let's collaborate and create something extraordinary! 🚀
 

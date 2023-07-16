@@ -1,4 +1,4 @@
-# **👨‍🎓 Samrat MOndal - Mechanical Engineering Student**
+# **👨‍🎓 Samrat Mondal - Mechanical Engineering Student**
 ## Technical Skills:
 🌐 Web Development | Full Stack Developer \
 💻 Competitive Coding (C, Python) | AutoCAD 2D \
